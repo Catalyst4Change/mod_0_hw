@@ -1,0 +1,1 @@
+the first place i visited as an adult was Split, Croatia while i was in the navy. I was really wowed by the old-world cobblestone streets and the fact that there weren't cops and guardrails absolutely everywhere. on that day i was bitten by the travel bug and have been infected with itchy feet every day since.
